@@ -1,0 +1,1 @@
+## Tecnologia Blip da Take
